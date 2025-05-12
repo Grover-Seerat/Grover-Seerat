@@ -22,9 +22,9 @@
 
 ### 🤝 Let's Connect!
 
--📧 **Email:** [groseeru2205@gmail.com](mailto:groseeru2205@gmail.com)
+- 📧 **Email:** [groseeru2205@gmail.com](mailto:groseeru2205@gmail.com)
 
--💼 **LinkedIn:** [linkedin.com/in/seerat-grover-105233344](linkedin.com/in/seerat-grover-105233344) 
+- 💼 **LinkedIn:** [linkedin.com/in/seerat-grover-105233344](linkedin.com/in/seerat-grover-105233344) 
 
 
 <p align="center">
